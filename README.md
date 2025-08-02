@@ -62,14 +62,6 @@ Interaja nas redes sociais
 
 Envie seu áudio nos quadros do podcast
 
-📱 Redes Sociais
-
-Instagram: @linhaquebrada
-
-Twitter/X: @zejoelhovidro
-
-TikTok: @resenhalinhaquebrada
-
 ✍️ Criado por
 
 Guilherme Victor Frech, idealizador do projeto e criador do personagem Zé “Joelho de Vidro” Souza – um boleiro aposentado à força, mas ainda em forma quando o assunto é futebol e piada.
